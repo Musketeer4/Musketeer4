@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Musketeer4
-- 👀 I'm Qingshihuang's generation
-- 🌱 I’m currently planning to denji
 -  nice to meet u :)
 
 <!---
